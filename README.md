@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ScorpiusXI
+- 👋 Hi, I’m @ScorpiusXI! My family calls me Kyle. 
 - 👀 I’m interested in Video Game Creation!
 - 🌱 I’m currently learning everything from the beginning
 - 💞️ I’m married with a son 
